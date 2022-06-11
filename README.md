@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/90931685/173171499-a268313d-6aa2-4de4-a9fe-ff562cc56c16.png)
+![image](https://user-images.githubusercontent.com/90931685/173171528-eb162e94-d489-4b9e-abd0-709220bee28d.png)
 
 # Кабиторий 
 ___________________________________________________________________________
